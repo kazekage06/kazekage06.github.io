@@ -1,0 +1,1 @@
+# kazekage06.github.io
